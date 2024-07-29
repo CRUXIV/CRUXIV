@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @CRUXIV
+- 👀 I’m interested in Programing
+- 🌱 I’m currently learning Linux develpment 
+- 💞️ I’m looking to collaborate on linux projects
+- 📫 How to reach me Threw my email "Charlieulmanxiv@gmail.com"
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I LOVE LINUX
