@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CRUXIV
-- 👀 I’m interested in Programing
+- 👀 I’m interested in cyber security
 - 🌱 I’m currently learning Linux develpment 
 - 💞️ I’m looking to collaborate on linux projects
 - 📫 How to reach me Threw my email "Charlieulmanxiv@gmail.com"
